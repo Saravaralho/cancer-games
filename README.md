@@ -1,3 +1,4 @@
-# cancer-games
+Heya
 Name is Saravaralho 👋
-![](ocultacao-de-cadaver-u5enOjpq8)
+I am learning how to codify and learn codes (it's hard as hell)
+and that's it 👍
